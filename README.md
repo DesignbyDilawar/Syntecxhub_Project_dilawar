@@ -1,2 +1,2 @@
-# Syntecxhub_Project_dilawar
+# Syntecxhub_Project_dilawar-uiux design
 👉 Landing Page Design Project
